@@ -2,7 +2,7 @@
 
 Me chamo Eline Rabelo, tenho 24 anos e sou natural de Fortaleza - Ceará.
 Concluí o ensino médio profissionalizante em Multimídia. Atualmente,
-estou cursando Engenharia de Software na Unifanor. Sou apaixonada pelo universo da tecnologia.
+estou cursando Engenharia de Software na Unifanor. Sou apaixonada pelo universo da tecnologia, amo ler livros e avaliar filmes no Letterboxd!
 
 ---
 
